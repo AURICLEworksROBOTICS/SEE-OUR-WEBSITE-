@@ -2,6 +2,6 @@
 SEE OUR WEBSITE : https://sites.google.com/view/auricle-robotics/home
 visit our website from here : https://sites.google.com/view/auricle-robotics/home
 
-this is our startups official website visit it via this link : https://sites.google.com/view/auricle-robotics/home
+This is our startups official website visit it via this link : https://sites.google.com/view/auricle-robotics/home
 .........................................................................................................................
 ___________________________________________________________________________________________________________________________
